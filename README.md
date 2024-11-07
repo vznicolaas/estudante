@@ -14,5 +14,5 @@ nicolas.andre.cardoso@escola.pr.gov.br
 
 
 
-![https://tenor.com/pt-BR/view/neymar-jr-gif-5671283038136262162]
+![](https://tenor.com/pt-BR/view/neymar-jr-gif-5671283038136262162)
 
