@@ -12,5 +12,5 @@ Você pode entrar em contato comigo 📫
 
 nicolas.andre.cardoso@escola.pr.gov.br
 
-![](https://tenor.com/pt-BR/view/dance-happy-dance-black-dance-get-it-gif-14992825767124506528)
+![](https://media1.tenor.com/m/0BE3mYzHl6AAAAAC/dance-happy-dance.gif)
 
